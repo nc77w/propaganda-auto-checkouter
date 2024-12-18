@@ -1,0 +1,1 @@
+# propaganda-auto-checkouter
